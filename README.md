@@ -12,7 +12,7 @@ k### Assalamu-Walaikum  👋, Iam MOHAMMAD AHAD-XD
 
 #### A NOOB DEVOLAPAR ( TELEGRAM : https://t.me/Ahad_Vau_King )
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+NINJA+Here;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳;Respect+X-NINJA-XD;It's+my+real+github+account;Please+Follow+My+GitHub;Thanks+My+All+Friend;Love+From+Bangladesh)](https://git.io/typing-svg)<br/>
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Neuton&size=25&color=30FF40&background=000000&center=true&vCenter=true&width=360&height=60&lines=Hello+World%2C+I'm+AHAD+Here;𝙸𝚃'𝚜+𝙽𝙾𝚃+𝙰+𝙹𝚄𝚂𝚃+𝙽𝙰𝙼𝙴+𝙱𝚁𝙾;𝙸𝚃'𝚜+𝙰+𝙱𝚁𝙰𝙽𝙳;Respect+MOHAMMAD-AHAD-XD;It's+my+real+github+account;Please+Follow+My+GitHub;Thanks+My+All+Friend;Love+From+Bangladesh)](https://git.io/typing-svg)<br/>
 <br/>
 <br/>
 Skills: PYTHON & WEB DEFACE & WEB SITE DOWN 
@@ -47,7 +47,7 @@ Skills: PYTHON & WEB DEFACE & WEB SITE DOWN
 <h1> THIS IS MY REAL GITHUB ACCOUANT<h5/>
 <h2>MY SOCIAL MEDIA<h2/>
 
-[![](https://img.shields.io/badge/Github-black?logo=Github&logoColor=red&labelColor=black)](https://github.com/X-NINJA-XD) <br>
-[![](https://img.shields.io/badge/Facebook-black?logo=Facebook&logoColor=red&labelColor=blue)](https://www.facebook.com/profile.php?id=100088150427344) <br>
+[![](https://img.shields.io/badge/Github-black?logo=Github&logoColor=red&labelColor=black)](https://github.com/AHAD-VAU-KING) <br>
+[![](https://img.shields.io/badge/Facebook-black?logo=Facebook&logoColor=red&labelColor=blue)](https://www.facebook.com/Karo.Vab.Chudar.Time.Naii) <br>
 
 <h2> THANKS FOR VISIT <h2\>
